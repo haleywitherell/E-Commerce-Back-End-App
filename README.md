@@ -19,7 +19,7 @@ Haley Witherell
 Click the link below to see the walk thru video for this project.
 
 
-* you may need to download the video after following the Google drive link
+https://drive.google.com/file/d/1SgBN--aM1Tpi-Eer1FJ87LvtMeyhfR_V/view 
 
 
 ## Questions
